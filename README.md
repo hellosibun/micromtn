@@ -1,4 +1,4 @@
-Logr - An Amazing Project
+Logr - An Extraordinary Project
 ====
  - - -
 
